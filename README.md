@@ -1,2 +1,8 @@
-# app-dev
-My first repository
+
+**MY CURRENT FAVORITE SERIES ARE DEXTER**
+*fOR ME THIS SERIES IS ABOUT A GOOD SERIAL KILLER WHO ONLY KILLS BAD PEAOPLE*
+
+# HIS FAMOUS VICTIMS:
+- Arthur Mitchell
+- Brian Moser
+- Miguel Prado
